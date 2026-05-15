@@ -1,4 +1,4 @@
-# 
+# exclusive Vegas Pro for PC | Vegas Pro for Windows Panel | color-grading + LUT-support offers the most advanced Vegas Pro for PC | Vegas Pro for Windows panel, with color-grading
 
 
 
